@@ -1,0 +1,1 @@
+https://www.toolots.com/ng-frontend/productDetail?id=52050&title=1.5%20HP%20Tire%20Changer%20Wheel%20Changer%2024&quot;%20Swing%20Arm%20Tire%20Machine%20Tire%20Mounting%20Machine%20with%20Double%20Assist%20Arms
